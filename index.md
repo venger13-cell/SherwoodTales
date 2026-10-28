@@ -1,3 +1,5 @@
+ Privacy Policy
+
 SherwoodTales
 
 Effective Date: October 28, 2026
